@@ -1,1 +1,1 @@
-https://practice1-karyna-str.onrender.com
+https://practice1-karyna-str-2.onrender.com/
